@@ -1,1 +1,1 @@
-# Krypto-Plannet
+# Krypto-Planet
